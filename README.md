@@ -4,4 +4,4 @@
 - 😄 Pronomes:ELE/DELE
 - ⚡ Um fato sobre mim: Eu adoro a saga de jogos Bayonneta
 
-![](https://cdn.vox-cdn.com/uploads/chorus_asset/file/655226/tumblr_lodl4fWXtS1qluebuo1_500.0.gif)
+![](https://pa1.aminoapps.com/7080/ebfd74c00eef5d62895c2fe96ef820b08db005afr1-540-303_hq.gif)
