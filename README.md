@@ -1,5 +1,5 @@
 - 👋 Oi sou o Samu.
 - 👀 Gosto de jogos, arte, musica, entre varias outras coisas.
-- 🌱 Estou aprendendo utimamente como melhorar o eu traço de desenho.
+- 🌱 Estou aprendendo utimamente como melhorar o meu traço de desenho.
 - 😄 Pronomes:ELE/DELE
 - ⚡ Um fato engraçado:Nâo sei
