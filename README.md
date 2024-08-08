@@ -1,4 +1,4 @@
-- 👋 Oi sou o Samu.
+- 👋 Oi sou o **Samu**.
 - 👀 Gosto de jogos, arte, musica, entre varias outras coisas.
 - 🌱 Estou aprendendo utimamente como melhorar o meu traço de desenho.
 - 😄 Pronomes:ELE/DELE
